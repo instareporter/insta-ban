@@ -19,7 +19,7 @@ developer: https://t.me/pysmart 👨‍💻
 
 🏆 Twitter 
 
-Do not sell this tool! ⚖️
+Do not sell this tool! 
 
 You’re free to message me for guide! 
 
