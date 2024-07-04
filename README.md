@@ -21,7 +21,7 @@ developer: https://t.me/pysmart 👨‍💻
 
 Do not sell this tool! 
 
-You’re free to message me for guide! 
+You’re free to message me for full guide! 
 
 TEAM GROUP 👇
 https://t.me/pysmart
